@@ -2,7 +2,7 @@
 
 🎓 B.Tech in Artificial Intelligence and Data Science  
 📍 Chennai, Tamil Nadu, India   
-📄 [View My friend  Resume](https://drive.google.com/file/d/1xm-SOzcv93rFRa6GnkQqO-fzUm3rgxtD/view?usp=sharing)  
+📄 [View My   Resume](https://drive.google.com/drive/folders/1DkYYnAXdNIjCWZw3CNiwFgSwAZpdsDp8?usp=drive_link)  
 🔗 [LinkedIn](https://www.linkedin.com/in/ma-mohamed-siddiqh)
 
 ---
